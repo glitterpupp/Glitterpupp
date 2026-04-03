@@ -1,7 +1,8 @@
 ㅤㅤㅤ
-ㅤㅤdry youre eyes
+ㅤㅤㅤㅤㅤ eternal return 
 
-<img width="720" height="442" alt="Screenshot_20260402-192823" src="https://github.com/user-attachments/assets/ecfa854d-a021-40c7-8ecd-16e77fcb8cba" />
+<img width="720" height="420" alt="Screenshot_20260403-092814" src="https://github.com/user-attachments/assets/e947a36d-fc5b-45f8-b0b3-8ee38b8b1daa" />
+
 
 
 
