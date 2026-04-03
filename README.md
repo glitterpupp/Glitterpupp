@@ -1,17 +1,13 @@
-ㅤㅤㅤㅤㅤㅤ a pity she does not exist 
+ㅤㅤㅤ
+ㅤㅤdry youre eyes
 
-<img width="720" height="441" alt="Screenshot_20260402-194023" src="https://github.com/user-attachments/assets/adf919b9-fc50-43a4-bc81-32a479a2ef24" />
-
-
-
-
-
-
-ㅤㅤㅤㅤㅤㅤㅤ
+<img width="720" height="442" alt="Screenshot_20260402-192823" src="https://github.com/user-attachments/assets/ecfa854d-a021-40c7-8ecd-16e77fcb8cba" />
 
 
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ♡ㅤ [atabook](https://starwberrydoggies.atabook.org/)
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ♡ㅤ [atabook](https://starwberrydoggies.atabook.org/)
      
